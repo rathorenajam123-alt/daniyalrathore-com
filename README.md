@@ -1,2 +1,0 @@
-# daniyalrathore-com
-my portfolio
